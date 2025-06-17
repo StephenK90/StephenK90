@@ -31,4 +31,4 @@ I’m a Marine Corps veteran turned IT professional with a deep passion for cybe
 He/Him
 
 ## ⚡ Fun fact:
-I’m a proud dad of four, a combat logistics Marine, and a lifelong learner who's gone from managing airfield operations in Afghanistan to developing secure websites and cloud apps—one terminal window at a time.
+I’m a proud dad of four, a Marine Corps Veteran, and a lifelong learner who's gone from managing airfield operations in Afghanistan to developing secure websites and cloud apps—one terminal window at a time.
