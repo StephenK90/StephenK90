@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @StephenK90
+# 👋 Hi, I’m Stephen
 
 I’m a Marine Corps veteran turned IT professional with a deep passion for cybersecurity, system administration, and technology that supports real-world impact. After nearly a decade serving as a 0481 Basic Landing Support Specialist, I transitioned into IT, where I bring leadership, critical thinking, and mission-focused precision to every project.
 
